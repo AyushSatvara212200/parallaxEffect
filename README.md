@@ -1,1 +1,1 @@
-/parallaxEffect/
+ayushsatvara212200.github.io
